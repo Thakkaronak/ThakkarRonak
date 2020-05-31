@@ -1,1 +1,1 @@
-# [Website - Ronak Thakkar](https://ronakthakkar.me)
+# [Website - Ronak Thakkar](https://thakkaronak.github.io)
