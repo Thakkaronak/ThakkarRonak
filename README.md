@@ -1,1 +1,1 @@
-# [Website - Amit Shekhar](https://amitshekhar.me)
+# [Website - Ronak Thakkar](https://ronakthakkar.me)
